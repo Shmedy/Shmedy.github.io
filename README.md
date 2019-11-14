@@ -1,2 +1,2 @@
 # Shmedy.github.io
-Junayed is a hater and the pistons are winning the championship
+Hi my name is Wesley Chan and my social security number is 938873830
